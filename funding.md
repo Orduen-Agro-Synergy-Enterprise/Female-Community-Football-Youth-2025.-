@@ -41,4 +41,4 @@ By supporting this competition, you are:
 
 ---
 
-Together, we can make this year’s edition even more impactful. Your contribution—big or small—creates lasting change! 
+✨ **Donate today and be part of the change. Together, we can make this year’s edition even more impactful!**
